@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Krzesiktokoks
 - 👀 I’m interested in ZSEIL Smokers Club
 - 🌱 I’m currently learning M1
-- 💞️ I’m looking to collaborate on ur mom
+- 💞️ I’m looking to collaborate on owner ZSEIL Smokers Club
 - 📫 How to reach dwójke z M1
 - 😎🤙🤙 Krzesik to koks
 
